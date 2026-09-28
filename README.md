@@ -1,0 +1,1 @@
+# Winmerge-Full-Version-Unlocked
